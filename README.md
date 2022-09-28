@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Digvijay-4141
-- 👀 I’m interested in giving presentation, speeches, team work 
+- 👀 I’m interested in giving presentation, speeches, team work, bit coding and exploring 
 - 🌱 I’m currently learning ...BTech in CSE iot
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...by 7058976343 
